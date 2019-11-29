@@ -3,7 +3,3 @@ nous avons ajouté une ligne
 
 Troubleshooting
 
-Trouble
-Trouble
-Trouble
-
